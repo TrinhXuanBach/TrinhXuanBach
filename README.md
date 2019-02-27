@@ -1,1 +1,5 @@
 # TrinhXuanBach
+
+### repo chinh
+
+kfjmnkmkldmrtlmk
